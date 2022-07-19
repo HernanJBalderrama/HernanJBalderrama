@@ -7,4 +7,4 @@
 </div>
   
 ##
-![CV - Hernan (1)](https://user-images.githubusercontent.com/99737747/179776843-8c457aa4-4342-4d06-af25-462522d3ed77.png)
+![CV - Hernan 3](https://user-images.githubusercontent.com/99737747/179781842-108cd236-7093-4813-975f-0ef32fef7856.png)
