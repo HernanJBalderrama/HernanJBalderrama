@@ -1,4 +1,4 @@
-## 😄 Here I am, Gerónimo Riesco 👋
+## 😄 Here I am, Hernan J. Balderrama 👋
 
 ## Connect with me:
 <div style="display: inline_block">
